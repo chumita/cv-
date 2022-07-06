@@ -1,1 +1,2 @@
- ![CHUMI](https://user-images.githubusercontent.com/108828004/177611131-83b7e90f-b547-406f-9088-070801a59b82.jpeg)
+![image](https://user-images.githubusercontent.com/108828004/177615568-f270b9f0-7806-417d-8c6a-77bfc2e5c617.png)
+
